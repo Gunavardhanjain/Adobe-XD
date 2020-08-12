@@ -1,2 +1,2 @@
 # Designs
-All the design works links that I have done are uploaded here
+All the design work links that I have done are uploaded here
